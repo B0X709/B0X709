@@ -4,8 +4,7 @@
 
 Alynn/Boxxi ^^     C+H
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ <img width="4096" height="4096" alt="Lag era_20251130143647" src="https://github.com/user-attachments/assets/d6fb5e33-5162-4b8d-8c27-070ce1a62477" />
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ <img width="4096" height="4096" alt="Lag era_20251130143647" src="https://github.com/user-attachments/assets/d6fb5e33-5162-4b8d-8c27-070ce1a62477" />
 
 
 
