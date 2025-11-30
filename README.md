@@ -1,2 +1,2 @@
-                                                            ༺༒༻                                                                                      Alynn/Boxxi ^^     C+H
+Alynn/Boxxi ^^     C+H
 °•✮•°༺༒༻࿄웃
